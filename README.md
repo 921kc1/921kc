@@ -1,3 +1,12 @@
-#  <a title="https://www.921kc13.com" role="link" target="_blank" class="text-bold" rel="noopener noreferrer" href="https://www.921kc13.com">www.921kc13.com</a>
-# <a title="https://www.921kc12.top" role="link" target="_blank" class="text-bold" rel="noopener noreferrer" href="https://www.921kc12.top">www.921kc12.top</a>
-# <a title="https://www.bdwpdy.com" role="link" target="_blank" class="text-bold" rel="noopener noreferrer" href="https://www.bdwpdy.com">www.bdwpdy.com</a>
+# 直达地址
+### 我有一个朋友
+### https://www.woyouyigepengyou.top
+### https://www.wyygpy3.top
+### https://www.wyygpy4.top
+### https://www.wyygpy.top
+### https://www.wyygpy1.top
+### https://www.wyygpy2.top
+
+......
+发布地址
+### https://github.com/921kc/921kc1/wiki
